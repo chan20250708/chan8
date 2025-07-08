@@ -10,4 +10,4 @@
 
 本站为您提供最新的高清影视资源，快速更新，确保观影无延迟。支持跨平台播放，随时随地享受无缝观影体验。我们致力于为您提供高质量内容，并确保无任何广告干扰。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/chan20250708/chan8 ）</span>
